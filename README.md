@@ -6,3 +6,4 @@ Wendy: Super!
 
 What's your favorite color?
 Wendy: black and blue
+thomas: senne van waar ben je
