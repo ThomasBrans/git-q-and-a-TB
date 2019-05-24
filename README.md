@@ -10,3 +10,4 @@ thomas: senne van waar ben je?
 Opglabbeek/Oudsbergen
 
 Wat doen jullie zo al graag in het weekend?
+thomas: uitgaan chillen en  met vrienden
